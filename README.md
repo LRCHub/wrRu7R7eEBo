@@ -1,0 +1,69 @@
+# LE SSERAFIM – No-Return (Into the unknown)
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:05.98] 한없이도 커 보였던 세계는 이젠 그저 blue dot
+[00:11.33] Since I met the truth
+[00:14.13] 거짓말이었던 rules, oh, oh
+[00:18.18] I ain't gonna fake it, 이젠 돌아갈 수 없어 내 past life
+[00:23.56] 시작의 횃불 난 다시 태어나 new, oh, oh
+[00:37.06] 
+[00:30.72] 두려워도 너무 설레는걸
+[00:33.18] Yes we ride, yes we ride
+[00:36.52] 심장이 왈칵 나를 흔들어
+[00:39.06] Let it go, let it go, 'cause I know I'm so alive
+[01:03.06] 
+[00:43.20] 어깨를 펴고, here we are. here we are
+[00:46.37] 저 멀리 외쳐, hear me out, hear me out
+[00:49.53] Yes I do, 난 지금 조금 미쳐있으니까
+[00:52.46] Yes I do, 난 조금 giddy, I'm witty, I'm witty
+[01:13.46] 
+[00:56.26] Here we are, here we are
+[00:58.31] 저 멀리 외쳐, hear me out, hear me out
+[01:01.89] Yes I do, 모험이 너와 나를 부르니까
+[01:04.73] Yes I do, 너와 난 giddy, and witty, and witty
+[01:25.73] 
+[01:07.52] I am not low-key, low-key, low-key
+[01:10.87] I am not low-key, low-key, low
+[01:13.72] I'm not low-key, low-key, low-key
+[01:16.63] I am not low-key, low-key, low
+[01:19.35] I am not low-key
+[01:27.35] 
+[01:21.23] I got no invitation, it's okay
+[01:23.29] 모험이 그렇지 다 웃을래
+[01:26.29] 낯선 미지의 phase 헷갈리던 way
+[01:29.19] So can you be my map, be my map now?
+[01:47.19] 
+[01:32.86] 넌 나를 이끄는 별이 돼줘
+[01:35.26] Yes we ride, yes we ride
+[01:38.93] 난 너의 바람이 돼 줄 거야
+[01:41.24] Let us go, let us go
+[01:42.74] 'Cause we know we're so alive
+[01:57.24] 
+[01:45.32] 어깨를 펴고, here we are, here we are
+[01:48.27] 저 멀리 외쳐, hear me out, hear me out
+[01:51.98] Yes I do, 난 지금 조금 미쳐있으니까
+[01:54.80] Yes I do, 난 조금 giddy, I'm witty, I'm witty
+[02:15.80] 
+[01:58.64] Here we are, here we are
+[02:00.70] 저 멀리 외쳐, hear me out, hear me out
+[02:03.97] Yes I do, 모험이 너와 나를 부르니까
+[02:06.96] Yes I do, 너와 난 giddy, and witty, and witty
+[02:27.96] 
+[02:23.38] 심장을 따라, here we are, here we are
+[02:26.57] 더 날아가자, here we go, here we go
+[02:29.83] Yes I do, 우리가 만난 마법 같은 운명
+[02:32.70] Yes I do, 너와 난 giddy, I'm witty, I'm witty
+[02:53.70] 
+[02:36.43] Here we are, here we are
+[02:38.61] 더 날아보자, here we fly, here we fly
+[02:42.12] Yes I do, 새로운 우주에 첫발을 뻗어
+[02:45.13] Yes I do, 너와 난 giddy, and witty, and witty
+[03:06.13] 
+[02:47.94] I am not low-key, low-key, low-key
+[02:50.84] I am not low-key, low-key, low
+[02:54.01] I'm not low-key, low-key, low-key
+[02:57.16] I am not low-key, low-key, low
+[02:59.58] I am not low-key
+```
